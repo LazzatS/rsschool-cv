@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lazzats.github.io/rsschool-cv/cv
